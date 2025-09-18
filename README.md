@@ -1,1 +1,0 @@
-# radioaktivt_henfald
